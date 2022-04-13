@@ -1,1 +1,0 @@
-# Ford-Motor-Company-Supply-Chain-Statergy
